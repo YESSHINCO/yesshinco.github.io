@@ -1,0 +1,1 @@
+# yesshinco.github.io
